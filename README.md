@@ -12,7 +12,7 @@ I made a bold leap from acing biology to diving deep into computer science — a
 ---
 
 - 🌍 I'm based in **Bangalore**
-- ✉️ You can contact me at **[nayana.b.n144@gmail.com](mailto:nayana.b.n.144@gmail.com)**
+- ✉️ You can contact me at **[nayana.b.n.215@gmail.com](mailto:nayana.b.n.215@gmail.com)**
 
 ---
 
